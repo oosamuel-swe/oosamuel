@@ -1,0 +1,2 @@
+# oosamuel
+My tech journey 
